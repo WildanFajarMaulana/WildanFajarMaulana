@@ -119,8 +119,8 @@ Bachelor of Informatics
 
 ## 📫 Connect With Me
 
-LinkedIn  
-Email  
+LinkedIn : https://www.linkedin.com/in/wildanfajarmaulana/
+Email - 
 
 ---
 
